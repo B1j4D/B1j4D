@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @B1j4D
 - 👀 I’m interested in WEBDEV / CODING / DESIGN 3D.2D / GAMING
 - 🌱 I’m currently learning 3D DESIGN
-- 💞️ I’m looking to collaborate on NOT YET
+- 💞️ I’m looking to collaborate 
 - 📫 How to reach me GHELEBIJAD24@GMAIL.COM
 
 <!---
